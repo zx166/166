@@ -2,14 +2,14 @@
 ✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016；  QQ 3490166426
 ####▶ 特别关注
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
-<a href="https://github.com/zx168/168/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15594416/aeb198f8-23f8-11e6-937c-63887634c348.jpg" width="317" height="123"></a>
+<a href="https://github.com/zx166/166/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15594416/aeb198f8-23f8-11e6-937c-63887634c348.jpg" width="317" height="123"></a>
 #### ▶ 大陆禁片 · 在线观看或下载
 <a href="https://dctrz7l9ug6uw.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317" height="123"></a>
-<a href="https://github.com/zx168/168/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16539004/df8f319a-4024-11e6-9584-67c22b06b3fe.jpg" width="317" height="123"></a>
-<a href="https://github.com/zx168/168/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375612/ea4de28c-fda5-11e5-98cd-3d62dbc535ef.jpg" width="317" height="123"></a>
-<a href="https://github.com/zx168/168/issues/20" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15447859/364d5398-1f93-11e6-9688-e715efe6ab75.jpg" width="317" height="123"></a>
+<a href="https://github.com/zx166/166/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16539004/df8f319a-4024-11e6-9584-67c22b06b3fe.jpg" width="317" height="123"></a>
+<a href="https://github.com/zx166/166/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375612/ea4de28c-fda5-11e5-98cd-3d62dbc535ef.jpg" width="317" height="123"></a>
+<a href="https://github.com/zx166/166/issues/20" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15447859/364d5398-1f93-11e6-9688-e715efe6ab75.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/cangzishi.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="317" height="123"></a>
-<a href="https://github.com/zx168/168/issues/22" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15658078/8fe5ba2e-26a7-11e6-8254-4465cbb8e2a9.jpg" width="317" height="123"></a>
+<a href="https://github.com/zx166/166/issues/22" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15658078/8fe5ba2e-26a7-11e6-8254-4465cbb8e2a9.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/1400.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15915122/31408db0-2dd6-11e6-8943-8619a37e1722.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/renzewanwu.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478264/6c985fce-0157-11e6-809d-5f22d3d8357c.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/Res343.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16462795/5fb5684e-3e22-11e6-9320-81ce022838a3.gif" width="634" height="123"></a>
@@ -54,7 +54,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/seyb.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/yuyantoday.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446400/e346a762-1eed-11e6-81a1-249155ee9d73.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/business.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446395/ca3e30dc-1eed-11e6-91a5-706fd35338a4.jpg" width="100" height="142"></a>
-<a href="https://github.com/zx168/168/issues/19" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446663/9882fa84-1ef5-11e6-949e-8be5904382bb.jpg" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/19" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446663/9882fa84-1ef5-11e6-949e-8be5904382bb.jpg" width="100" height="142"></a>
 ####▶ 闪画集锦 · 在线观看
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279885/dee6bcaa-fb72-11e5-8744-7c194ba21a05.JPG" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279887/deee3746-fb72-11e5-9e95-f143d08f680a.JPG" width="206" height="80"></a>
@@ -69,21 +69,21 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/qgqsjzm/qgqsjzm.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/16739014/ba68cf10-4787-11e6-9522-e2ecae3504d4.jpg" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjdsp/sjdsp.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/16739006/b5bf815c-4787-11e6-878c-9504c356aedc.jpg" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/ebao/ebao.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/16739025/c2bd3926-4787-11e6-8b68-be3b105fe1b4.jpg" width="206" height="80"></a>
-<a href="https://github.com/zx168/168/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279883/dee0b102-fb72-11e5-8656-9fe3e24b37f9.jpg" width="206" height="80"></a>
+<a href="https://github.com/zx166/166/issues/5" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279883/dee0b102-fb72-11e5-8656-9fe3e24b37f9.jpg" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tdcs/tdcs-53/tdcs53.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16309688/28ca7b3a-3959-11e6-87b6-d5c7ee3e3e9e.jpg" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/mingbai/mingbai-66/mb66.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16354817/05a983b8-3a93-11e6-8861-f787c64ab320.jpg" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/zx/zx-80/zx80.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16354819/0e19f9ce-3a93-11e6-9040-8e3550b5301c.jpg" width="206" height="80"></a>
 #### ▶ 明慧期刊 · 在线阅读或下载
-<a href="https://github.com/zx168/168/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911848/11bee618-2dc1-11e6-9e27-414bdda661fb.jpg" width="100" height="142"></a>
-<a href="https://github.com/zx168/168/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911857/177f6a5a-2dc1-11e6-9e3a-7b9ae7cabd02.jpg" width="100" height="142"></a>
-<a href="https://github.com/zx168/168/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911862/1c3cf828-2dc1-11e6-93f9-2bcc33340341.jpg" width="100" height="142"></a>
-<a href="https://github.com/zx168/168/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16736417/6167bc38-477c-11e6-8713-afa2e000831c.jpg" width="100" height="142"></a>
-<a href="https://github.com/zx168/168/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16736422/66adf18a-477c-11e6-9d9e-de0bb45ba507.jpg" width="100" height="142"></a>
-<a href="https://github.com/zx168/168/issues/11" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16736425/6dd9a06c-477c-11e6-9da9-9898291246b2.jpg" width="100" height="142"></a>
-<a href="https://github.com/zx168/168/issues/15" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400967/801254ac-fe45-11e5-9b54-e40eb3050c52.JPG" width="100" height="142"></a>
-<a href="https://github.com/zx168/168/issues/16" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16309674/1e2abeba-3959-11e6-8d7c-33f40ceb0617.jpg" width="100" height="142"></a>
-<a href="https://github.com/zx168/168/issues/12" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400894/4698562e-fe43-11e5-8234-a85a86def324.JPG" width="100" height="142"></a>
-<a href="https://github.com/zx168/168/issues/14" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16309681/233fb450-3959-11e6-96e0-c5e036f5ddd7.jpg" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911848/11bee618-2dc1-11e6-9e27-414bdda661fb.jpg" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911857/177f6a5a-2dc1-11e6-9e3a-7b9ae7cabd02.jpg" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911862/1c3cf828-2dc1-11e6-93f9-2bcc33340341.jpg" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16736417/6167bc38-477c-11e6-8713-afa2e000831c.jpg" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16736422/66adf18a-477c-11e6-9d9e-de0bb45ba507.jpg" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/11" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16736425/6dd9a06c-477c-11e6-9da9-9898291246b2.jpg" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/15" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400967/801254ac-fe45-11e5-9b54-e40eb3050c52.JPG" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/16" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16309674/1e2abeba-3959-11e6-8d7c-33f40ceb0617.jpg" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/12" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400894/4698562e-fe43-11e5-8234-a85a86def324.JPG" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/14" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16309681/233fb450-3959-11e6-96e0-c5e036f5ddd7.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/hsh/hsh-52.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400934/adc48c90-fe44-11e5-915e-028e8451652c.JPG" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
 #### ▶ 其它精彩内容 · 在线观看或下载
@@ -94,7 +94,7 @@
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 <hr></hr>
 ###一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
-✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp;   [【软件介绍】](https://github.com/zx168/168/issues/1)
+✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp;   [【软件介绍】](https://github.com/zx166/166/issues/1)
 
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/software/u.zip"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/software/um.apk" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8963614/a7cea12a-35fb-11e5-8285-2c052e5ea386.jpg" width="200"  height="60"  hspace= 15></a>
