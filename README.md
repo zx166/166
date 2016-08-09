@@ -1,4 +1,4 @@
-✪ 本站永久网址 https://git.io/zx168  
+✪ 本站永久网址 http://bit.do/zx168 
 ✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016；  QQ 3490166426
 ####▶ 特别关注
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
