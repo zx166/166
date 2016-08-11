@@ -88,7 +88,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
 #### ▶ 其它精彩内容 · 在线观看或下载
 <a href="https://github.com/zx166/movie/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17000494/5a1ff192-4eb2-11e6-9d1a-4a17e44720b7.jpg" width="200"></a>
-<a href="https://github.com/zx166/XJY/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17471322/de01d9c4-5d32-11e6-84fa-7c882463fff2.jpg" width="210"></a>
+<a href="https://github.com/zx166/Weekly/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17471322/de01d9c4-5d32-11e6-84fa-7c882463fff2.jpg" width="210"></a>
 <a href="https://github.com/zx166/xinsheng/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15528394/1a54253e-2233-11e6-9c13-075148fdd086.jpg" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
