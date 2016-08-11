@@ -1,10 +1,8 @@
-✪ 本站永久网址 https://github.com/zx166/166
-
-✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016；  QQ 3490166426
-
+✪ 本站永久网址 https://github.com/zx166/166     
+✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016；  QQ 3490166426     
 ####▶ 特别关注
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
-<a href="https://github.com/zx166/166/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15594416/aeb198f8-23f8-11e6-937c-63887634c348.jpg" width="317" height="123"></a>
+<a href="https://github.com/zx166/166/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17471431/987d0e7c-5d33-11e6-9ed3-a4761ad694fa.jpg" width="317" height="123"></a>
 #### ▶ 大陆禁片 · 在线观看或下载
 <a href="https://dctrz7l9ug6uw.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317" height="123"></a>
 <a href="https://github.com/zx166/166/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16539004/df8f319a-4024-11e6-9584-67c22b06b3fe.jpg" width="317" height="123"></a>
@@ -90,7 +88,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
 #### ▶ 其它精彩内容 · 在线观看或下载
 <a href="https://github.com/zx166/movie/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17000494/5a1ff192-4eb2-11e6-9d1a-4a17e44720b7.jpg" width="200"></a>
-<a href="https://github.com/zx166/XJY/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17000644/f17aa5c8-4eb2-11e6-89a3-829fec5d71d5.jpg" width="210"></a>
+<a href="https://github.com/zx166/XJY/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17471322/de01d9c4-5d32-11e6-84fa-7c882463fff2.jpg" width="210"></a>
 <a href="https://github.com/zx166/xinsheng/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15528394/1a54253e-2233-11e6-9c13-075148fdd086.jpg" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
