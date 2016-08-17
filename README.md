@@ -79,7 +79,7 @@
 #### ▶ 明慧期刊 · 在线阅读或下载
 <a href="https://github.com/zx166/166/issues/7" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17645385/2351013e-6194-11e6-8f3e-640709f1d93e.jpg" width="100" height="142"></a>
 <a href="https://github.com/zx166/166/issues/6" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911857/177f6a5a-2dc1-11e6-9e3a-7b9ae7cabd02.jpg" width="100" height="142"></a>
-<a href="https://github.com/zx166/166/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15911862/1c3cf828-2dc1-11e6-93f9-2bcc33340341.jpg" width="100" height="142"></a>
+<a href="https://github.com/zx166/166/issues/8" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17751551/1c7fdc6a-64b7-11e6-99e6-2801c73478be.jpg" width="100" height="142"></a>
 <a href="https://github.com/zx166/166/issues/9" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17645435/a1685f9e-6195-11e6-9850-ba6a422029a6.jpg" width="100" height="142"></a>
 <a href="https://github.com/zx166/166/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17645446/d467833e-6195-11e6-9983-54538a446321.jpg" width="100" height="142"></a>
 <a href="https://github.com/zx166/166/issues/11" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17645453/07dbf4ca-6196-11e6-87de-7cdb2a1a0739.jpg" width="100" height="142"></a>
