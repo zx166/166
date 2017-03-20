@@ -1,9 +1,9 @@
 ✪ 本站永久网址 https://bit.do/zx166    
 ✪ 欢迎反馈： Email youyuan669@yahoo.ca；  微信 freeland_2016；  QQ 3490166426     
-####▶ 特别关注
+#### ▶ 特别关注
 <a href="https://dctrz7l9ug6uw.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
 <a href="https://github.com/zx166/166/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17471431/987d0e7c-5d33-11e6-9ed3-a4761ad694fa.jpg" width="317" height="123"></a>
-####▶ 精彩网站 · 免翻直连
+#### ▶ 精彩网站 · 免翻直连
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
 <a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
 <a href="https://dfocbrl2lfmvs.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402096/9e16edb0-fe6c-11e5-98c0-93af6a9f5eaa.jpg" width="317" height="91"></a>
@@ -24,14 +24,14 @@
 <a href="https://dctrz7l9ug6uw.cloudfront.net/renzewanwu.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478264/6c985fce-0157-11e6-809d-5f22d3d8357c.jpg" width="317" height="123"></a>
 <a href="https://github.com/zx166/organ/issues/10" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375610/ea4c32c0-fda5-11e5-9fe0-3a1f6dd7c0f3.jpg" width="317" height="123"></a>
 <a href="https://dctrz7l9ug6uw.cloudfront.net/saviour.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15592373/92c18296-23e6-11e6-8109-8032c263a980.jpg" width="317" height="123"></a>
-####▶ 音频集锦 · 在线收听及下载
+#### ▶ 音频集锦 · 在线收听及下载
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudio9ping.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375427/96fb8aea-fda4-11e5-9770-7c14db54ee08.jpg" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375426/96fb5e9e-fda4-11e5-93fa-cd0805485aa8.jpg" width="317" height="91"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/audio/listaudiomtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375428/97321d8a-fda4-11e5-9b67-596dcfdf3308.jpg" width="317" height="91"></a>
-####▶ 我要三退
+#### ▶ 我要三退
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
 <a href="https://github.com/zx166/166/issues/23" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18463039/21e6a12c-7955-11e6-8296-d97a8015ee71.jpg" height="160"></a>
-####▶ 明慧特刊 · 在线阅读或下载
+#### ▶ 明慧特刊 · 在线阅读或下载
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/trueflg.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/425.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15096159/33257f20-14bb-11e6-9c6c-4d58865b555c.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/ysnbjhp.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279508/e4bedbf0-fb70-11e5-8a1f-32df4ef4d39d.jpg" width="100" height="142"></a>
@@ -56,7 +56,7 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/yuyantoday.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446400/e346a762-1eed-11e6-81a1-249155ee9d73.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/tekan/business.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446395/ca3e30dc-1eed-11e6-91a5-706fd35338a4.jpg" width="100" height="142"></a>
 <a href="https://github.com/zx166/166/issues/19" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15446663/9882fa84-1ef5-11e6-949e-8be5904382bb.jpg" width="100" height="142"></a>
-####▶ 闪画集锦 · 在线观看
+#### ▶ 闪画集锦 · 在线观看
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/zifenzx/zifenzx.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279885/dee6bcaa-fb72-11e5-8744-7c194ba21a05.JPG" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/sjpj/sjpj.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279887/deee3746-fb72-11e5-9e95-f143d08f680a.JPG" width="206" height="80"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/flash/czsjm-m/czsjm.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279881/dec2929e-fb72-11e5-9160-1ba43be8c31a.JPG" width="206" height="80"></a>
@@ -96,8 +96,9 @@
 <a href="https://github.com/zx166/xinsheng/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17645466/4be032d0-6196-11e6-9e30-e74e6f2d7d4d.jpg" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
-<hr></hr>
-###一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
+
+### 一键翻墙 
+✪ 简单快速的翻墙软件 ✪ 即时更新
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp;   [【软件介绍】](https://github.com/zx166/166/issues/1)
 
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/software/u.zip"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
