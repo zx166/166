@@ -92,13 +92,15 @@
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
 #### ▶ 其它精彩内容 · 在线观看或下载
 <a href="https://github.com/zx166/movie/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17000494/5a1ff192-4eb2-11e6-9d1a-4a17e44720b7.jpg" width="200"></a>
-<a href="https://github.com/zx166/Weekly/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/18397467/e4516b84-76b7-11e6-9fc4-a125c974c162.jpg"" width="210"></a>
+
+<a href="https://github.com/zx166/Weekly/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/18397467/e4516b84-76b7-11e6-9fc4-a125c974c162.jpg" width="210"></a>
+
 <a href="https://github.com/zx166/xinsheng/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17645466/4be032d0-6196-11e6-9e30-e74e6f2d7d4d.jpg" width="210"></a>
 #### ▶ 更多精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 
-### 一键翻墙 
-✪ 简单快速的翻墙软件 ✪ 即时更新
+#### 一键翻墙 
+✪ 简单快速的翻墙软件 ✪ 即时更新   
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp;   [【软件介绍】](https://github.com/zx166/166/issues/1)
 
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/software/u.zip"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
